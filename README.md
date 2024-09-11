@@ -1,1 +1,1 @@
-💻I'm a software engineer, specialized in frontend development, and also a content creator on technology, programming, and artificial intelligence.
+💻I'm a 
