@@ -5,8 +5,8 @@
 
 ### Sobre mi:
 
-Soy arquitecto con cinco años de experiencia profesional y he decidido darle un giro a mi carrera. Me he capacitado como desarrollador fullstack con el objetivo de encontrar un espacio en el mercado laboral de la tecnología, un mundo que me ha resultado apasionante.
+Soy Ayrton German Caradec Me he capacitado como desarrollador Full Stack, utilizando como principal herramienta la autogestión.
 
-Busco oportunidades que me permitan aportar mi energía fresca y mi enfoque productivo a equipos de trabajo dinámicos. Soy una persona versátil y adaptable, con una rápida capacidad de aprendizaje y un fuerte compromiso con la mejora continua. Mi objetivo es poder resolver diferentes desafíos para contribuir al éxito de proyectos desafiantes, recibiendo y devolviendo feedback constantemente con el equipo de trabajo.
+He contribuido activamente al avance de mi equipo, fomentando una comunicación verbal efectiva entre mis compañeros, logrando excelentes resultados en proyectos evaluados.
 
-Estoy en busca de roles que me ofrezcan la estabilidad que busco y la posibilidad de seguir desarrollándome en el campo de la tecnología de la información.
+Enfocado en la atención al detalle para lograr una mejora continua del producto. Mi gran adaptabilidad al cambio y mi pasión por el aprendizaje me impulsan a asumir nuevos desafíos y aportar soluciones de calidad.
